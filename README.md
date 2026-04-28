@@ -50,7 +50,7 @@
 
 - 📧 ایمیل: `danial@iranbsn.com`
 - 🐙 گیت‌هاب: [github.com/danial8809](https://github.com/danial8809)
-
+- 🆔 روبیکا: `@D_A_N_I_A_L_8m`
 ---
 
 ## ✨ نقل قول من
